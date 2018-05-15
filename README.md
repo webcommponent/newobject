@@ -1,0 +1,1 @@
+![http://47.90.210.145:8080/Sukla/resources/images/index.gif]
